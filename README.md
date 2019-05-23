@@ -5,6 +5,7 @@
                                                  
                                                      
                                                   Amplificador Autoecualizable
+           ![descarga](https://user-images.githubusercontent.com/50624611/58263625-fc416080-7d41-11e9-9ad1-9b428d58dde7.jpg)
 
                                              
                                              Profesora: Marina Luminosa Soto Márquez
